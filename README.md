@@ -1,1 +1,2 @@
 # hayaatt
+yaşamaya değer
